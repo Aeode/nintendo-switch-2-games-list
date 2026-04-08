@@ -1,0 +1,1 @@
+# nintendo-switch-2-games-list
