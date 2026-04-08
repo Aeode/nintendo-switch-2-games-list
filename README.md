@@ -1,1 +1,1 @@
-# nintendo-switch-2-games-list
+# Nintendo Switch 2 Games List
